@@ -1,6 +1,6 @@
 # FXAC.gif (240 FRAME)
 
-## 📌 1-110 FRAME
+## 📌 1-110 FRAME___________________________________________________________________CLICK HERE 👇
 ![1of3](https://github.com/user-attachments/assets/c59b6358-06e1-4e49-9b81-b9b33276d98d)
 
 ## 📌 111-215 FRAME
